@@ -1,1 +1,1 @@
-I hope you find something interesting here!
+I hope you find something interesting here
